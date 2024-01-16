@@ -1,1 +1,1 @@
-Gabriel Khot GoodKeys is a programmer!
+Gabriel KhotKeys
